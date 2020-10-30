@@ -1,19 +1,13 @@
-## Welcome to Nark
+## Welcome to LYY Link Shortening Network
 
 
-### noun
-1.
-BRITISH
-a police informer.
+### Your own, decentralized link network
 
-"I'm not a copper's nark"
+sil.lyy
+mil.lyy
+jil.lyy
+jel.lyy
+foreal.lyy
 
-2.
-AUSTRALIAN • NEW ZEALAND
-an annoying person or thing.
+the possibilities are endless.
 
-
-### verb
-BRITISH
-cause annoyance to.
-"women like her nark me"
